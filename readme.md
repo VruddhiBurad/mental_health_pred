@@ -57,6 +57,4 @@ Anonymous screening platforms
 Student mental health initiatives
 
 
-👤 Author
-Made with ❤️ by Yashswi 
 Empowering mental health awareness through technology
